@@ -1,4 +1,3 @@
-Where do you put Vegeta after you kill him? In the Frieza. 
 
 What did Beerus say to Goku? Why don't you tell your son to "Gohan" home. 
 
@@ -14,7 +13,7 @@ Where does Vegeta get the energy to fly? Red Bullma, it gives you wings.
 
 What is Goku's favorite instrument of destruction? A Piccolo (flute). 
 
-How do you get in touch with an android? By using a CELL Phone. 
+How do you get in touch witr an android? By using a CELL Phone. 
 
 Did you know Frieza wasn't very popular in school? His brother was COOLER. 
 
